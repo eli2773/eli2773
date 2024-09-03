@@ -1,8 +1,9 @@
-Aopa,
-Meu nome é Elias e eu estou no 1 ano
+Meu nome é Elias e eu estou no 1 ano do ensino medio
 
-Gosto de água
+e estou aprendendo a usar o 
 
-Campeão mundial de volei(só que não)
+Tenho grande interesse  em jogos
+
+
 
 instagram @Eli_2773_
